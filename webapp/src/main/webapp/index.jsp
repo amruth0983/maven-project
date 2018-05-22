@@ -1,1 +1,1 @@
-Hello, World welcome to Germany! Updated today as well
+Hello, World welcome to Germany! Updated today as
